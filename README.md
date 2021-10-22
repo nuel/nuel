@@ -1,6 +1,4 @@
 ### howdy
 ![thecow](https://user-images.githubusercontent.com/66974415/133889903-89736ed8-aca9-4673-a3c5-be331def3f82.png)
 
-Hi! Welcome to my GitHub. I&rsquo;m Emmanuelle, or <em>nuel</em> for short. I make games, music, stories, art and interactive stuff. I was born in 1995 and published my first website in 2005. Since then, I&rsquo;ve worked on <span style="background: rgb(255, 188, 188)">📦<a href="https://places.willem-twee.nl" target="_blank" >3D art exhibitions set in liminal spaces</a></span>, <span style="background: rgb(166, 255, 188)">🤝<a href="https://tonite.dance" target="_blank">a VR music video for LCD Soundsystem where you co-op with yourself</a></span>, <span style="background: rgb(226, 226, 226)">🏠<a href="https://nonlinearnarrative.github.io/no-home-like-place/" target="_blank">an AI generated collage that lets you travel the world</a></span>, <span style="background: rgb(255, 190, 252)">🌼<a href="https://waterparken.bandcamp.com/album/dear-chaemin-ost" target="_blank">emotional soundtracks</a></span> for <span style="background: rgb(193, 222, 255)">🔍<a href="https://emmaverhoeven.itch.io/escape-here-now" target="_blank">all kinds of media</a></span> and many other things.
-          
-I also run <a href="https://melon.computer">Melon Computer</a>, a virtual gallery and club inside Minecraft featuring works from over 50 different artists. <span style="background: #ff0">💌 For hate mail, love mail, biz mail, please refer to: <a id="email">gh @ nuel dot pw</a>. Flash will never die!
+Hi! Welcome to my GitHub
