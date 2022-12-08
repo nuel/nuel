@@ -1,5 +1,3 @@
-![thecow](https://user-images.githubusercontent.com/66974415/133889903-89736ed8-aca9-4673-a3c5-be331def3f82.png)
-
 ___howdy___
 &middot; &middot; &middot;
 You have reached _nuel github_.
@@ -10,7 +8,10 @@ There, are you comfortable? Let me put on some [tunes](https://waterparken.bandc
 
 That capitalist son of a gun. He's crossed the line now. Oh, you? No, you're free to go. Tell Bryan his scare tactics won't work on me. And call me sometime! I don't meet many assassins this cute.
 
-### more nuel
+## more nuel
 
-- 🥦 [nuel website](https://nuel.pw)
-- 💌 [nuel news](https://tinyletter.com/nuel)
+- 🌴 [nuel.pw](https://nuel.pw)
+- 💌 [nuel.news](https://nuel.news)
+- 💾 [nuel.download](https://nuel.news)
+
+![thecow](https://user-images.githubusercontent.com/66974415/133889903-89736ed8-aca9-4673-a3c5-be331def3f82.png)
