@@ -2,7 +2,7 @@ ___howdy___
 &middot; &middot; &middot;
 You have reached _nuel github_.
 
-Feel free to roam around. Would you like a [sandwich](https://nuel.pw/sandwich)? Some [coffee](https://nuel.pw/house) perhaps? What's that? You've eaten already and you don't need anything? The comforts of modern life are wasted on an attractive vagabond such as yourself? Instead you'd like to find a place where we could [converse](https://rt.nuel.pw) a little more privately? My, aren't you a bold one. Well, my [hotel room](https://nonlinearnarrative.github.io/no-home-like-place/) is upstairs. Follow me.
+Feel free to roam around. Would you like a [sandwich](https://nuel.pw/sandwich)? Some [coffee](https://nuel.pw/slurp) perhaps? What's that? You've eaten already and you don't need anything? The comforts of modern life are wasted on an attractive vagabond such as yourself? Instead you'd like to find a place where we could [converse](https://realtime.nuel.cloud) a little more privately? My, aren't you a bold one. Well, my [hotel room](https://nonlinearnarrative.github.io/no-home-like-place/) is upstairs. Follow me.
 
 There, are you comfortable? Let me put on some [tunes](https://waterparken.bandcamp.com) while you freshen up. Maybe clean out your [earwax](https://nuel.pw/earwax) or something. Now, now, don't be shy. Just go into the bathroom. Go on. Now get on your fucking knees and tell me who sent you. Yes, that's loaded and [I will use it](https://nuel.pw/gungirl), honey. Was it the [Globoform Corporation](https://globoform.com)? Those weasels from the [Chimpee Chocolate Factory](https://nuel.pw/chimpee/)? Was it [Bryan](https://nuel.pw/bryan/)?!
 
