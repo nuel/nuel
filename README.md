@@ -1,9 +1,8 @@
-Heya! Here's my top 3 things I've worked on that you should see:
+![Oh, The Places You'd Go!](https://github.com/nuel/nuel/assets/66974415/101e4d44-9103-4149-916a-0708a8a0e7ae)
+&rarr; [Oh, The Places You'd Go!](https://places-archived.surge.sh)
 
-![IMG_1292](https://github.com/nuel/nuel/assets/66974415/597fc196-1e93-400e-8c12-bddcb0bf6899)
-- [Oh, The Places You'd Go!](https://places-archived.surge.sh)
+![STRP Festival 2022](https://github.com/nuel/nuel/assets/66974415/ace7cd3c-84e3-427e-8f3b-ad8123d3cd28)
+&rarr; [STRP Festival 2022](https://festival2022.strp.nl)
 
-- [STRP Festival 2022](https://festival2022.strp.nl)
-<img width="1130" alt="dancetonite" src="https://github.com/nuel/nuel/assets/66974415/a9180368-f887-4a55-87e3-e74456508d07">
-
-- [Dance Tonite](https://tonite.dance)
+![Dance Tonite](https://github.com/nuel/nuel/assets/66974415/a9180368-f887-4a55-87e3-e74456508d07)
+&rarr; [Dance Tonite](https://tonite.dance)
